@@ -44,4 +44,4 @@ For questions or permissions beyond the license terms, please contact the author
 
 ---
 
-© Tetê
+© 2026 Anna Thereza Bezerra de Mello Cárcamo
